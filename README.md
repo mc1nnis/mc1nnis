@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mc1nnis
-- 👀 I’m interested in gingers
+- 👀 I’m interested in coding
 - 📫 How to reach me ... DONTTTTTTT
 - ⚡ Fun fact: I'm crazy
 
